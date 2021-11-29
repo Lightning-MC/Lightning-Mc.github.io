@@ -1,1 +1,1 @@
-Lightning-MC.xyz Official Wedsite
+Lightning-MC.xyz Official Website
